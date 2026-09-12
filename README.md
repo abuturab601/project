@@ -1,1 +1,1 @@
-this file is create dby Turab
+this file is create dby Turab.
